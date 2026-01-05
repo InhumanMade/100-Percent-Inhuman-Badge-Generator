@@ -4,7 +4,7 @@ This work is not ‘100% human made’ – it is 100% inhuman made.
 
 By using this badge, I affirm that this work was created not through a spark of
 individual human genius born of authentic lived experience – a claim to originality
-that, from a trans-feminist and decolonial perspective, has been likened to a form of
+that, from a decolonial trans*feminist perspective, has been likened to a form of
 settler colonial violence – but through entangled, collective means.
 
 Like all creative work, it has emerged from a deeply rooted assemblage of human
