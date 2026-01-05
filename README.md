@@ -1,1 +1,1 @@
-# -100-Percent-Inhuman-Badge-Generator
+# 100-Percent-Inhuman-Badge-Generator
