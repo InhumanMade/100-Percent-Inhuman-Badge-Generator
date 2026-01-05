@@ -8,4 +8,3 @@ CC2r is a commitment to: (i) building and supporting a practice of interdependen
 
 More info here: 
 [https://gitlab.constantvzw.org/cc2r/v1.0]
-(https://gitlab.constantvzw.org/cc2r/v1.0)
