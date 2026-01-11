@@ -12,6 +12,8 @@ and nonhuman forces: bodies and minds, texts and tools, machines and
 technologies, institutions and infrastructures, software code and server farms,
 climate systems and digital networks, and, yes, on occasion, AI.
 
+These 100% Inhuman Made badges call on us to reconsider what we mean by 'the human' and how it relates to the world – especially in the context of the climate crisis and rapid expansion of AI. They urge us to question 'the human' in multiple senses: for instance, the human as a member of a human species; as someone capable of 'humaneness', humanity' and human feeling for others; and as a subject who upholds human values, is governed by human laws and norms, and upon whom human rights regarding life, liberty, property and citizenship can be conferred.
+
 Use these badges on your books, artworks, newsletters, podcasts or websites to
 take a stand against outdated, anthropocentric myths of authorship and originality.
 However well-intentioned, such ideas continue to prop up extractive, human-
